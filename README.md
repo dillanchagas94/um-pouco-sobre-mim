@@ -29,7 +29,7 @@
 
 - 💼 **LinkedIn:** (https://github.com/dillanchagas94)  
 - 📧 **E-mail comercial:** dillanchagas@gmail.com 
-
+- 👨‍💻 **Instagram:** https://www.instagram.com/dillanchagas?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==
 
 
 ## 🚀 Projetos em destaque
